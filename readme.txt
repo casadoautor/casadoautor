@@ -1,1 +1,1 @@
-aplicaçao perfeita para sekf publish
+aplicaçao que busca a perfeição para self publish
